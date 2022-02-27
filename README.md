@@ -1,4 +1,4 @@
-- hi im andy ![ezgif com-gif-maker (4)](https://user-images.githubusercontent.com/100468611/155840684-aee56bd1-7c51-4721-ae7c-8d0a76e13d0d.png)
+- hi im andy ![ezgif com-gif-maker (4)](https://user-images.githubusercontent.com/100468611/155840684-aee56bd1-7c51-4721-ae7c-8d0a76e13d0d.png) intp 5w4
  <br> my pronouns are it/he + neos <br> psychotic malnourished trans worm liker
 - i like horror stuff, videogames, will wood and glass animals
 <br> dont be afraid to int with me if u like those things as well :-]
