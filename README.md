@@ -1,6 +1,6 @@
 - hi im andy ![ezgif com-gif-maker (4)](https://user-images.githubusercontent.com/100468611/155840684-aee56bd1-7c51-4721-ae7c-8d0a76e13d0d.png) intp 5w4
  <br> my pronouns are it/he + neos <br> psychotic malnourished trans worm liker
- <br> im ukrainian + russian slav (living in russia rn)
+ <br> im ukrainian + russian slav 
 - i like horror stuff, videogames, will wood, glass animals and russian rock
 <br> dont be afraid to int with me if u like those things as well :-]
 - im mostly in a silly goofy mood ![946204271777570846](https://user-images.githubusercontent.com/100468611/155839645-f65abdd9-fe04-4367-9bc1-c3facc177923.gif)
