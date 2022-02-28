@@ -8,4 +8,4 @@
 <br> but if you wanna talk to me idm just dont be weird ok
 - if you have any problem with me just hide me idc <br> i will hide u if u annoy me or my friends and i wont tell u about it<br> u can copy and inspo from my skins idc
 - ur not slav = ur opinion on war invalid. sorry not sorry:-P
-<br> tired of yall americans pretending that it affects u
+<br> tired of yall americans pretending that it affects u and u know more about our countries than we do
