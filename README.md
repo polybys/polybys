@@ -1,6 +1,5 @@
 - andy / danny / poly
- <br> my pronouns are it/he + neos, im 18
- <br> im ukrainian slav 
+ <br> it/he + neos, 18, ukrainian slav 
  <br> malnourished ND cryptid worm
 - i'm a big scp nerd, i also love videogames, will wood, glass animals and russian rock
 <br> dont be afraid to int with me if u like those things as well :-]
