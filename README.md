@@ -7,4 +7,5 @@
 <br> as me or we share pt regis/species come say hi
 - dni if u overuse tonetags, have an eyestrain skin or use typing quirks (i cant read em)
 <br> idc if u like any "problematic" media just dont defend it
+<br> if u have any issue with me than hide me idc. i will hide u if u annoy me or my friends
 
