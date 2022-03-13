@@ -1,6 +1,6 @@
 - andy / danny / poly
  <br> it/he + neos, 18, ukrainian slav 
- <br> malnourished ND cryptid worm
+ <br> malnourished ND cryptid worm, biology major
 - i'm a big scp nerd, i also love videogames, will wood, glass animals and russian rock
 <br> dont be afraid to int with me if u like those things as well :-]
 - i mostly hang out with my friends, but if you like the same things
