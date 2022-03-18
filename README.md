@@ -1,5 +1,5 @@
 - andy / danny / poly
- <br> it/he + neos, 18
+ <br> it/its + neos, 18
  <br> aroace ND ukrainian slav
 - i love videogames, will wood, glass animals and russian rock
 <br> dont be afraid to int with me if u like those things too :-]
