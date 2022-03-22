@@ -7,5 +7,5 @@
 <br> u can copy or inspo from my skins idrc
 - dni if u overuse tonetags, have an eyestrain skin or use typing quirks
 <br> idc if u like any "problematic" media just dont defend it (except for okegom. fuck u)
-<br> if u have any issue with me then hide me. i will hide u if u annoy me or my friends
+<br> i will hide u if u annoy me or my friends
 <br> if i have a skin of u (irl) u can always ask me to change or hide! ^_^
