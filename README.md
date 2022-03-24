@@ -21,5 +21,5 @@ it/he + neos, 18, esfp 7w6
 <br> *(except for okegom. fuck u)*
 <br>
 
-![ezgif com-gif-maker (12)](https://user-images.githubusercontent.com/100468611/159876868-51167bfe-4224-4504-bc86-d1bc16f6753e.jpg)
+![ezgif com-gif-maker (13)](https://user-images.githubusercontent.com/100468611/159877637-b837222e-7c11-4045-9704-91e2e7fca476.jpg)
 <br>*art by sillysymbol*
