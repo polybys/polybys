@@ -2,7 +2,7 @@
 it/he + neos, 18, esfp 7w6
  <br> aroace ND ukrainian slav ***!***
 - **my interests *!***
-<br> scp, **blueycapsules**, **videogames**, analog horror, podcasts
+<br> scp, **blueycapsules**, **videogames**, analog horror, fiction podcasts
 <br> will wood, glass animals, russian rock
 <br> feel free to int if u like those things as well !
 
