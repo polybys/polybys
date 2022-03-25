@@ -1,5 +1,5 @@
 ### andy / danny / dave 🎈🧩🐱
-it/he + neos, 18, esfp 7w6
+he/it + neos, 18, esfp 7w6
  <br> aroace ND ukrainian slav ***!***
 - **my interests *!***
 <br> scp, **blueycapsules**, **videogames**, analog horror, fiction podcasts
