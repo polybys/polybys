@@ -4,7 +4,7 @@ he/it + neos, 18, esfp 7w6
 - **my interests *!***
 <br> scp, **blueycapsules**, **videogames**, analog horror, fiction podcasts
 <br> will wood, glass animals, russian rock
-<br> feel free to int if u like those things as well !
+<br> pls int if u like those!!! 
 
 - **byi *!***
 <br> i almost always hang out with my friends but come say hi anyway
