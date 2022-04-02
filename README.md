@@ -1,6 +1,6 @@
 ### daniel / dave / phil 🎈🧩🐱
 he/it + neos, 18, esfp 7w6
- <br> ace ND ukrainian slav ***!***
+ <br> gay and ace ND ukrainian slav ***!***
 - **my interests *!***
 <br> scp, **blueycapsules**, **videogames**, analog horror, fiction podcasts
 <br> will wood, glass animals, russian rock
