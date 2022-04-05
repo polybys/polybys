@@ -1,4 +1,4 @@
-### daniel / phil 🎈🧩🐱
+### daniel 🎈🧩🐱
 he/it + neos, 18, esfp 7w6
  <br> gay and ace ND ukrainian slav ***!***
 - **my interests *!***
