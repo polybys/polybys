@@ -7,4 +7,4 @@ he/it + neos, 18, esfp 7w6
 
 - **byi**
 <br> please dont overuse tonetags around me its really annoying
-<br> everyone can int unless ur weird
+<br> i dont give a slightless fuck what media u like just dont be weird
