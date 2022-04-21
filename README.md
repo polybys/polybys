@@ -1,5 +1,5 @@
 ### daniel 🎈
-he/it + neos, 18, esfp 7w6
+he/it + neos, 19, esfp 7w6
  <br> gay and ace ND guy
 - **my interests**
 <br> scp, **videogames**, analog horror, fiction podcasts
