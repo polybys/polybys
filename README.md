@@ -1,5 +1,5 @@
-### daniel 🎈
-he/it + neos, 19, esfp 7w6
+### daniel / andy 🎈
+he/it + neos, 19, xsfj 9w1
  <br> gay and ace ND guy
 - **my interests**
 <br> scp, **videogames**, analog horror, fiction podcasts
@@ -8,3 +8,4 @@ he/it + neos, 19, esfp 7w6
 - **byi**
 <br> please dont overuse tonetags around me its really annoying
 <br> i dont give a slightless fuck what media u like just dont be weird
+<br> no dnis ill just ignore or hide u
