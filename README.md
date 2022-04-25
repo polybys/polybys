@@ -1,4 +1,4 @@
-### daniel / andy 🎈
+### tomasz / daniel 🎈
 he/it + neos, 19, xsfj 9w1
  <br> gay and ace ND guy, assigned malware at birth
 - **my interests**
