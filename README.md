@@ -4,7 +4,7 @@ he/it + neos, 19, xsfj 9w1
 - **my interests**
 <br> scp, videogames, analog horror, fiction podcasts
 <br> will wood, glass animals
-<br> **current hyperfixations:** pathologic
+<br> **current hyperfixation:** pathologic
 
 - **byi**
 <br> please dont overuse tonetags around me its really annoying
