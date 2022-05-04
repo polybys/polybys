@@ -9,4 +9,4 @@ he/it + neos, 19, xsfj 9w1
 - **byi**
 <br> please dont overuse tonetags around me its really annoying
 <br> i dont give a slightless fuck what media u like just dont be weird
-<br> no dnis ill just ignore or hide u
+<br> no dnis ill just ignore or hide u. i will bully u if i dont like u though
