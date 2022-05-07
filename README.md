@@ -1,9 +1,8 @@
 ### daniel or andy 🎈
 he/it + neos, 19, xsfj 9w1
- <br> gay and ace ND guy, assigned malware at birth
+ <br> gay and ace ND communist ass, assigned malware at birth
 - **my interests**
 <br> scp, videogames, analog horror, fiction podcasts
-<br> will wood, glass animals
 <br> **current hyperfixation:** pathologic
 
 - **byi**
